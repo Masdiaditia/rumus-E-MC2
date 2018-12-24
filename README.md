@@ -1,1 +1,0 @@
-# rumus-E-MC2
